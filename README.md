@@ -7,7 +7,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/amani-shikh-alashra-096a32201](https://www.linkedin.com/in/amani-shikh-alashra-096a32201)
 
-<h3 align="left">Connect with me:</h3>
+
 <p align="left">
 </p>
 
