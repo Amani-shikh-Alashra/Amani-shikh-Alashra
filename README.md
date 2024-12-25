@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm Amani</h1>
 <h3 align="center">COMPUTER ENGINEER</h3>
 
-- 📄 Know about my experiences [http://bit.ly/3BJwSZP](http://bit.ly/3BJwSZP)
+- 📄 Know about my experiences [https://bit.ly/4fHwnxu](https://bit.ly/4fHwnxu)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
